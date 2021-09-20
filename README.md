@@ -1,1 +1,1 @@
-https://antipachita.github.io/rsschool-cv/cv
+https://antipachita.github.io/rsschool-cv/
